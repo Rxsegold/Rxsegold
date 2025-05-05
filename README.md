@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/1234694354778718260/1368901670574096426/AiFacheles.png?ex=6819e887&is=68189707&hm=bbf353b4ac7d81ebf64669f8e59eacf7ea8376f60ea2fff5cb186565780cb936&)
+
 
 
 OC(S) INSERT SHIL EDIT! Using heavily inspired characters as representation!
