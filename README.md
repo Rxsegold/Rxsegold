@@ -1,6 +1,6 @@
+ " **HEAVEN AND HELL KEEP US APART** "
+
+![Image](https://github.com/user-attachments/assets/073dd0fc-8e19-4d08-8cd7-c29ae9d8db54)
 
 
-
-OC(S) INSERT SHIL EDIT! Using heavily inspired characters as representation!
-(cant upload file in respo so heres link, GOODNIGHT WHY IS IT SO LONG)
-https://www.tiktok.com/@kibutssji/video/7500903307846651154?_r=1&u_code=egg3i706d60jb0&region=PH&mid=7500903330500856592&preview_pb=0&sharer_language=en&_d=edmj0b5kkimc3e&share_item_id=7500903307846651154&source=h5_t&timestamp=1746441237&user_id=7422545263581512721&sec_user_id=MS4wLjABAAAAp3X-tlG-eS9UmK5mbd77988O1a8KleUz6jHQ8s8ezzJXQOMe5wiU-6xxQJnlQYdM&social_share_type=0&utm_source=copy&utm_campaign=client_share&utm_medium=android&share_iid=7497600637271901969&share_link_id=19332f40-09e1-461f-98d4-92150ef3f49d&share_app_id=1180&ugbiz_name=MAIN&ug_btm=b8727%2Cb2878&link_reflow_popup_iteration_sharer=%7B%22click_empty_to_play%22%3A1%2C%22dynamic_cover%22%3A1%2C%22follow_to_play_duration%22%3A-1.0%2C%22profile_clickable%22%3A1%7D&enable_checksum=1
+![Image](https://github.com/user-attachments/assets/e4b7eab4-9bcf-4440-9ac0-b986651a658c)
